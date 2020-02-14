@@ -1,2 +1,3 @@
 # Alternative-Gothic
-Alternative Gothic Font Nº2 - Official YouTube Font
+
+Alternative Gothic Font Nº2 D Regular - Official YouTube Font
